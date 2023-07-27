@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @deepto-reza
-- 👀 I’m interested in mostly stuffs that Elon Musk is doing.
+- 👀 I’m interested in mostly pieces of stuff that Elon Musk is doing.
 - 🌱 I’m currently learning a language to speak with computer.
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
